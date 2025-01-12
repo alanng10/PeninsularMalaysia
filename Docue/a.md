@@ -19,4 +19,5 @@ Fifth letter "a" refers to instance of host any.
 First letter refers to civil that is applicable to all in the do civil network.
 Second letter refers to any network effect.
 Third letter refers to any unit of the effect.
-Fourth letter refers to any host in the civl network host.
+Fourth letter refers to any host in the do civil network host.
+Fifth letter refers to any any of the do civil network host.
