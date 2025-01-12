@@ -22,6 +22,8 @@ Third letter refers to any unit of the effect.
 Fourth letter refers to any host in the do civil network host.
 Fifth letter refers to any any of the do civil network host.
 
+The do civil network host is host for each network of civil.
+
 The word "Cenha" is same with or without Singapore.
 
 The word "Cenha" is same if Peninsular Malaysia Civil is part of larger region.
