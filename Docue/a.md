@@ -24,6 +24,8 @@ Fifth letter refers to any any of the do civil network host.
 
 The do civil network host is host for each network of civil.
 
+The any any in the do civil network host is any that is included in civil network host.
+
 The word "Cenha" is same with or without Singapore.
 
 The word "Cenha" is same if Peninsular Malaysia Civil is part of larger region.
