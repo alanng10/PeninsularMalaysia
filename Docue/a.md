@@ -7,3 +7,9 @@ Peninsular Malaysia Civil does civil network host.
 The do is same with or without Singapore.
 
 The do is same if Peninsular Malaysia Civil is part of larger region.
+
+Peninsular Malaysia Civil is Cenha.
+
+The word "Cenha" first letter "C" refers to civil that is applicable to all.
+Second letter "e" refers to instance of network effect.
+Third letter "n" refers to instance of effect unit.
