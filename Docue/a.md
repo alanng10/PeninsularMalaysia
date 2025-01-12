@@ -15,3 +15,7 @@ Second letter "e" refers to instance of network effect.
 Third letter "n" refers to instance of effect unit.
 Fourth letter "h" refers to instance of host.
 Fifth letter "a" refers to instance of host any.
+
+First letter refers to civil that is applicable to all in the do civil network.
+Second letter refers to any network effect.
+Third letter refers to any unit of the effect.
