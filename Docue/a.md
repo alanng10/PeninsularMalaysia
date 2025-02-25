@@ -4,16 +4,14 @@ Civil is civilization.
 
 Peninsular Malaysia Civil does civil network host.
 
-The do is Peninsular Malaysia Civil most general and most level do.
-
-The do is Peninsular Malaysia Civil ultimate do.
+The do is Peninsular Malaysia Civil park do.
 
 The do is same with or without Singapore.
 
 The do is same if Peninsular Malaysia Civil is part of larger region.
 
 Peninsular Malaysia Civil is Cenha.
-The word "Cenha" is Peninsular Malaysia Civil most general and most level word.
+The word "Cenha" is Peninsular Malaysia Civil park word.
 
 The word "Cenha" first letter "C" refers to civil that is applicable to all.
 Second letter "e" refers to instance of network effect.
@@ -35,8 +33,8 @@ The word "Cenha" is same with or without Singapore.
 
 The word "Cenha" is same if Peninsular Malaysia Civil is part of larger region.
 
-Peninsular Malaysia Civil has most general and most level worth.
+Peninsular Malaysia Civil has park worth.
 
-Peninsular Malaysia Civil has most general and most level value.
+Peninsular Malaysia Civil has park value.
 
-Peninsular Malaysia Civil has most general and most level marry.
+Peninsular Malaysia Civil has park marry.
