@@ -102,3 +102,5 @@ Cenha has park share arch benefit.
 Cenha has park share arch marry.
 
 Cenha has park share arch land.
+
+Cenha has major.
