@@ -122,3 +122,7 @@ Cenha has major on any.
 Cenha has major on live.
 
 Cenha has major on time.
+
+Cenha has major on reques.
+
+Cenha has major on respon.
