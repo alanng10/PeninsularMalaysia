@@ -120,3 +120,5 @@ Cenha has major on each.
 Cenha has major on any.
 
 Cenha has major on live.
+
+Cenha has major on effect.
