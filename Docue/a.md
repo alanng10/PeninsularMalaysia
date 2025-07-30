@@ -109,7 +109,7 @@ Cenha has park cross.
 
 Cenha has major.
 
-Cenha has major on civil. 
+Cenha has major on civil.
 
 Cenha has major on network.
 
