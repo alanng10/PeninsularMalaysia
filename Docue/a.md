@@ -121,4 +121,4 @@ Cenha has major on any.
 
 Cenha has major on live.
 
-Cenha has major on effect.
+Cenha has major on time.
